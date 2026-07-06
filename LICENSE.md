@@ -1,4 +1,4 @@
-
+Inteligente Marvel Rivals traps auxílio de mira é o melhor Marvel Rivals traps auxílio de mira com teletransporte e munição ilimitada. Seguro, confiável e otimizado para máximo
 
 
 
